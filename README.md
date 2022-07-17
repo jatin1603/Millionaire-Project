@@ -1,5 +1,20 @@
-# Millionaire
- First sem project python based project
+ BASLCBQW L
+ ;';NCM ';CDVWLKJBCDVW'
+ NC M
+ WE]C['JNVWEFVEZ;DL[]
+ 'NFM'S;SAKM,F
+ ]WE[' WMF
+ 'KVE';WEF]FEW';J KF]WN WEM,\]W['W
+ [P][P\][KN EFM
+ W]F']W['FNM WE[,]W[NNĒ
+ 'NWE
+ WELKNM
+ ENĒ
+ ĒNEMF
+ ĒNWECNWEF
+ WCE,WLCE\]N WCEMLCEWKWEMWEFBW
+ 'EWPLC[PW\WMKF[W]EF
+ QWMW/EJFMWENF\
  
  
  
